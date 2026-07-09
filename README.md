@@ -1,1 +1,1 @@
-# 2jr.github.io
+kill yourself
